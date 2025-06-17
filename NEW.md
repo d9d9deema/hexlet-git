@@ -1,1 +1,0 @@
-ya sam reshu
